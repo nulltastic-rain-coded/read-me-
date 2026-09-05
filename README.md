@@ -1,7 +1,13 @@
+#
+
+<P align="center"> 📁
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=+Relief&duration=3000&pause=400&color=FFFFFF&center=true&width=435&lines=I+hate+everything+about+YOU!;Why+do+I..+love+you.;+　　;　　 )](https://git.io/typing-svg) 
 
+<P align="center"> 🕶️
+ 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=+Relief&duration=3000&pause=300&color=323232&center=true&width=435&lines=　　;　　　　　　　;You+hate+EVERYTHING+about+me!!;Why+do+you...+LOVE+ME??!)](https://git.io/typing-svg)
-
+#
 $${\color{#0D1017}\text{space}}$$
 
 $${\color{#0D1017}\text{space}}$$
