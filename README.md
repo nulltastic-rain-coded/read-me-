@@ -10,14 +10,20 @@
 #
 $${\color{#0D1017}\text{space}}$$
 
+image here/
+
 $${\color{#0D1017}\text{space}}$$
 
-<P align="center"> 𝘕𝘶𝘭𝘭 / 𝘕𝘶𝘭𝘭𝘢𝘳𝘺
+<P align="center"> 𝘯𝘶𝘭𝘭 / 𝘯𝘶𝘭𝘭𝘢𝘳𝘺
 
 <P align="center"> 𝘩𝘦 / 𝘩𝘪𝘮
-<P align="center"> 𝘈𝘯𝘺 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴 𝘢𝘳𝘦 𝘰𝘬𝘢𝘺.
+<P align="center"> 𝘢𝘯𝘺 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴 𝘢𝘳𝘦 𝘰𝘬𝘢𝘺.
 
-<P align="center"> 𝘸𝘪𝘱
+<P align="center"> 𝘮𝘪𝘯𝘰𝘳 (𝙙𝙣𝙞, 𝙞𝙛 𝙮𝙤𝙪'𝙧𝙚 𝙜𝙤𝙣𝙣 𝙗𝙚 𝙬𝙚𝙞𝙧𝙙 𝙖𝙩 𝙢𝙚 𝙙𝙪𝙙𝙙..) 
+
+$${\color{#0D1017}\text{space}}$$
+
+<P align="center"> 𝘤𝘦𝘳𝘵𝘪𝘧𝘪𝘦𝘥 𝘕𝘶𝘭𝘭𝘹𝘕𝘦𝘪𝘭 𝘦𝘯𝘫𝘰𝘺𝘦𝘳. (𝙄 𝙛𝙬 𝙨𝙚𝙡𝙛-𝙘#𝙨𝙩 / 𝙨𝙚𝙡𝙛-𝙡𝙤𝙫𝙚.)
  
 $${\color{#0D1017}\text{space}}$$
 
@@ -25,8 +31,12 @@ $${\color{#0D1017}\text{aaaaahaaaaaaaaaa}}$$[✦](https://www.tiktok.com/@.nullt
 
 $${\color{#0D1017}\text{space}}$$
 
+$${\color{#0D1017}\text{space}}$$
+
+$${\color{#0D1017}\text{space}}$$
+
 <P align="center">
-going insane for some null x neil yaoi
+𝘯𝘶𝘭𝘭/𝘯𝘦𝘪𝘭 𝘺𝘢𝘰𝘪 𝘢𝘳𝘵 𝘮𝘢𝘥𝘦 𝘧𝘳𝘰𝘮 𝘰𝘵𝘩𝘦𝘳 𝘱𝘱𝘭 𝘸𝘩𝘦𝘯 :𝘦𝘺𝘦𝘴:
 
 $${\color{#0D1017}\text{space}}$$
 
