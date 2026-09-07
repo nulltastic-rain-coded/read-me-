@@ -12,6 +12,15 @@ $${\color{#0D1017}\text{space}}$$
 
 $${\color{#0D1017}\text{space}}$$
 
+<P align="center"> 𝘕𝘶𝘭𝘭 / 𝘕𝘶𝘭𝘭𝘢𝘳𝘺
+
+<P align="center"> 𝘩𝘦 / 𝘩𝘪𝘮
+<P align="center"> 𝘈𝘯𝘺 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴 𝘢𝘳𝘦 𝘰𝘬𝘢𝘺.
+
+<P align="center"> 𝘸𝘪𝘱
+ 
+$${\color{#0D1017}\text{space}}$$
+
 $${\color{#0D1017}\text{aaaaahaaaaaaaaaa}}$$[✦](https://www.tiktok.com/@.nulltasticrain_coded?_r=1&_t=ZS-99TBPOQbQtY)
 
 $${\color{#0D1017}\text{space}}$$
