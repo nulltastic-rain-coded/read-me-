@@ -23,8 +23,8 @@ $${\color{#0D1017}\text{space}}$$
 
 $${\color{#0D1017}\text{space}}$$
 
-<P align="center"> 𝘤𝘦𝘳𝘵𝘪𝘧𝘪𝘦𝘥 𝘕𝘶𝘭𝘭𝘹𝘕𝘦𝘪𝘭 𝘦𝘯𝘫𝘰𝘺𝘦𝘳. (𝙄 𝙛𝙬 𝙨𝙚𝙡𝙛-𝙘#𝙨𝙩 / 𝙨𝙚𝙡𝙛-𝙡𝙤𝙫𝙚.)
- 
+$${\color{#0D1017}\text{space}}$$
+
 $${\color{#0D1017}\text{space}}$$
 
 $${\color{#0D1017}\text{aaaaahaaaaaaaaa}}$$[✦](https://www.tiktok.com/@.nulltasticrain_coded?_r=1&_t=ZS-99TBPOQbQtY) [🍓](https://theguywithafilename.straw.page)
