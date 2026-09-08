@@ -27,13 +27,14 @@ $${\color{#0D1017}\text{space}}$$
  
 $${\color{#0D1017}\text{space}}$$
 
-$${\color{#0D1017}\text{aaaaahaaaaaaaaaa}}$$[✦](https://www.tiktok.com/@.nulltasticrain_coded?_r=1&_t=ZS-99TBPOQbQtY)
+$${\color{#0D1017}\text{aaaaahaaaaaaaaa}}$$[✦](https://www.tiktok.com/@.nulltasticrain_coded?_r=1&_t=ZS-99TBPOQbQtY) [🍓](https://theguywithafilename.straw.page)
 
 $${\color{#0D1017}\text{space}}$$
 
 $${\color{#0D1017}\text{space}}$$
 
 $${\color{#0D1017}\text{space}}$$
+#
 
 <P align="center">
 𝘯𝘶𝘭𝘭/𝘯𝘦𝘪𝘭 𝘺𝘢𝘰𝘪 𝘢𝘳𝘵 𝘮𝘢𝘥𝘦 𝘧𝘳𝘰𝘮 𝘰𝘵𝘩𝘦𝘳 𝘱𝘱𝘭 𝘸𝘩𝘦𝘯 :𝘦𝘺𝘦𝘴:
