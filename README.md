@@ -17,9 +17,8 @@ $${\color{#0D1017}\text{space}}$$
 <P align="center"> 𝘯𝘶𝘭𝘭 / 𝘯𝘶𝘭𝘭𝘢𝘳𝘺
 
 <P align="center"> 𝘩𝘦 / 𝘩𝘪𝘮
-<P align="center"> 𝘢𝘯𝘺 𝘱𝘳𝘰𝘯𝘰𝘶𝘯𝘴 𝘢𝘳𝘦 𝘰𝘬𝘢𝘺.
 
-<P align="center"> 𝘮𝘪𝘯𝘰𝘳 (𝙙𝙣𝙞, 𝙞𝙛 𝙮𝙤𝙪'𝙧𝙚 𝙜𝙤𝙣𝙣 𝙗𝙚 𝙬𝙚𝙞𝙧𝙙 𝙖𝙩 𝙢𝙚 𝙙𝙪𝙙𝙙..) 
+<P align="center"> 𝘺𝘦𝘢𝘩 𝘣𝘢𝘴𝘪𝘤𝘢𝘭𝘭𝘺 𝘐'𝘮 𝘵𝘰𝘰 𝘭𝘢𝘻𝘺 𝘵𝘰 𝘥𝘰 𝘢𝘯𝘺𝘵𝘩𝘪𝘯𝘨 𝘢𝘵𝘱
 
 $${\color{#0D1017}\text{space}}$$
 
